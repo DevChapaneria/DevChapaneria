@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @DevChapaneria
 - 👀 I’m interested in  bussiness and analystics.
-- 🌱 I’m currently learning new thing
+- 🌱 I’m currently Bi Developer 
 - 🧑‍🤝‍🧑 Intersted to built network.
 - 📫 How to reach me ...via linkdln https://www.linkedin.com/in/dev-chapaneria/
 
